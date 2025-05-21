@@ -4,6 +4,8 @@
 
 **Flying Gorilla** is not just another endless runner — it's an **epic action adventure** where you take control of a hyper-powered gorilla soaring through the skies, dodging deadly traps, smashing obstacles, and collecting bananas to unlock turbo boosts!
 
+## <a href="https://1kb.link/wLkjmS">👉 Click To Play Flying Gorilla Unblocked Games 👈</a>
+
 With its **3D HD graphics**, **unblocked access**, and **hyper-casual gameplay**, Flying Gorilla has become a global sensation among players looking for non-stop arcade fun.
 
 ---
